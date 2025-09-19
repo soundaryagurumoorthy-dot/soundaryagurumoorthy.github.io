@@ -1,1 +1,1 @@
-soundaryagurumoorthy.github.io
+soundaryagurumoorthy.Github.io
